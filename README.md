@@ -1,3 +1,3 @@
 # Exos_lundi_2
 
-Chritine Hoang, Kathleen Elie & Asvinie Baleswaran
+Christine Hoang, Kathleen Elie & Asvinie Baleswaran
